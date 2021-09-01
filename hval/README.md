@@ -1,0 +1,1 @@
+Hvaler eller kvaler (Cetacea) er en gruppe store pattedyr, som gjennom evolusjonen helt ut har blitt tilpasset et liv i vann. Sammen med seler og sjøkyr utgjør hvalene gruppen sjøpattedyr. Hvalenes nærmeste nålevende slektninger er imidlertid flodhestene (Hippopotamidae). 

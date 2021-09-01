@@ -1,0 +1,1 @@
+Gaupe eller eurasisk gaupe er et mellomstort kattedyr i slekten ekte gauper. Arten er mest tallrik i det boreale barskogbeltet i Eurasia, men fragmenterte bestander finnes også i mer sydlige strøk. Det er beskrevet flere underarter.
